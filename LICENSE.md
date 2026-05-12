@@ -1,4 +1,4 @@
-# 
+# Enhance 1Password for PC | 1Password for Windows with vip 1Password for PC | 1Password for Windows Integration | secure-notes + identity-storage, the #1 integration. Includes
 
 
 
